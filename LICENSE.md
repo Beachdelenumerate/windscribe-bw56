@@ -1,4 +1,4 @@
-
+Enhance your Windscribe experience with ultra-secure Windscribe Connector | L2TP-support + torrenting-support, the #1 connector. Includes L2TP-support and torrenting-support for a
 
 
 
